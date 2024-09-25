@@ -1,1 +1,0 @@
-# julurisaichandu.github.io
